@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cyxteen
-- 👀 I’m interested in the backend technology
+- 👀 backend technology
 - 🌱 I’m currently learning cisp
 
 <!---
