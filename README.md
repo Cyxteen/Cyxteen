@@ -12,7 +12,7 @@ Here are some of the languages I am experienced with:
 
 ## Contact 📞
 
-If you have any questions or want to collaborate, feel free to reach out to me at [harrowdanzel1@gmail.com]. 
+If you have any questions or want to collaborate, feel free to reach out to me at harrowdanzel1@gmail.com.
 
 Thanks for stopping by! 😄
 
