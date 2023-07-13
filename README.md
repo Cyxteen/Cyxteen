@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻Am Currently working on APIs <br>Am currently learning cyber security
+💻Currently working on APIs and learning cyber security
 
 
 ## 🌐 Socials:
